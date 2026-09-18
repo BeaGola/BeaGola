@@ -1,6 +1,6 @@
 # Hi, I'm Beatrice 👋
 
-I'm a product person at heart — and currently making the leap from product leader to founder.
+I'm a product person at heart - and currently making the leap from product leader to founder.
 
 For the past 15+ years, I've been building digital products, shaping product strategies, working with teams and organizations, and asking probably way too many questions about why customers do what they do.
 
